@@ -1,2 +1,0 @@
-# Arabfunny
-among us edition
